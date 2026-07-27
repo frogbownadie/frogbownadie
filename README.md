@@ -66,6 +66,15 @@ pls dni/c/Id/unless my friends or twin!! :P
 
 [**STRAWPAGE♥︎**](https://httpsribbitofthefrogloverstrawpage.straw.page)
 
+# ∞ Nadine ∞
+
+<img width="736" height="736" alt="Untitled50_20260727215038" src="https://github.com/user-attachments/assets/6b2683ae-a1a4-4734-b876-7fd5b76b22c3" />
+
+<p align="center">
+    
+  <img src="https://readme-typing-svg.demolab.com?font=Fira+Code&size=20&pause=1000&color=79fc4c&center=true&vCenter=true&width=1200&lines=I'M+GIGGLING+AND+I+LOVE+TO+SEE+U+HEHE+ILY+TWINS!!" />
+   </p>
+
 - - -
 
 ![dividerr :3](https://file.garden/amD6r8tnsiWQVfzU/Untitled48.png) 
