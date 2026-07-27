@@ -66,7 +66,7 @@ pls dni/c/Id/unless my friends or twin!! :P
 
 [**STRAWPAGE♥︎**](https://httpsribbitofthefrogloverstrawpage.straw.page)
 
-# ∞ Nadine ∞
+# ∞ Nadie ∞
 
 <img width="736" height="736" alt="Untitled50_20260727215038" src="https://github.com/user-attachments/assets/6b2683ae-a1a4-4734-b876-7fd5b76b22c3" />
 
