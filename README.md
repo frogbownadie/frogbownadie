@@ -39,7 +39,7 @@ pls dni/c/Id/unless my friends or twin!! :P
 </tr>
 </table>
 
-[**PRONOUNS.CC!**](https://pronouns.cc/@N4dicandysilly) 
+[**PRONOUNS.CC!**](https://en.pronouns.page/@N4dicandysilly) 
 
 
 - - -
